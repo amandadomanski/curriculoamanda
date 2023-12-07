@@ -1,0 +1,2 @@
+# curriculoamanda
+curriculo 
